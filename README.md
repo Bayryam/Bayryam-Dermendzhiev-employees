@@ -1,1 +1,0 @@
-# Bayryam-Dermendzhiev-employees
